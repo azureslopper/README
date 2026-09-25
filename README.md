@@ -1,1 +1,6 @@
-# README
+Idk how to make a github profile hmm...
+
+My name is Azureslopper, im 17 and I am an artist!
+communties im in is uhh MM12, Forsaken, Collinlock16 yes ok...
+
+I think thats all??
